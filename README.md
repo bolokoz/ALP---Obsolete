@@ -1,3 +1,9 @@
 Moshi moshi
 
-I've been watching some Android Development tutorials from a channel called The New Boston!
+please ignore;
+this is:
+antiquated
+archaic
+out-of-date
+anachronist
+dinosaur
